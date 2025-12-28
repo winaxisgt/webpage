@@ -1,2 +1,2 @@
 # webpage
-Winaxis GT
+Winaxis Global Technologies Private Limited 
